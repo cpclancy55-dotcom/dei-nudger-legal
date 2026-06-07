@@ -56,4 +56,4 @@ If this policy changes materially, the updated date at the top of this
 page will reflect it.
 
 ## Contact
-Questions or concerns? Reach out at [your-email@example.com]
+Questions or concerns? Reach out at [cpclancy55@gmail.com]
